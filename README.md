@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Anything
 - 📫 How to reach me Just Mail Me
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I'm new and i dunno anything
 
 <!---
 Saxmadik/Saxmadik is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
